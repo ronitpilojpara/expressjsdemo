@@ -1,2 +1,2 @@
-# Hey I,m Ronit Pilojpara
-There I'm Uploding My Workshop & My Projects
+# Hey 👋 I,m Ronit Pilojpara
+I will upload workshop & my projects here
